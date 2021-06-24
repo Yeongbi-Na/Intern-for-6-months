@@ -5,4 +5,8 @@
 <br>2019년도 기준 포트폴리오 -> 2019 포트폴리오.pdf
 
 
+공공빅데이터 청년인턴쉽 홍보영상 출연 https://www.youtube.com/watch?v=bApNy0kHzjM
+
+
+
 
