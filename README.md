@@ -1,6 +1,6 @@
 
 
-#### Report for works as an intern   - >   2019년 공공 빅데이터 청년 인턴십.pdf
+#### Report for works - >  2019년 공공 빅데이터 청년 인턴십.pdf
 
 
 *It is partly marked
